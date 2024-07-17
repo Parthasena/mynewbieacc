@@ -1,0 +1,2 @@
+# mynewbieacc
+learning somthing
